@@ -48,7 +48,7 @@ Network/Systems Administrator
 
 INTERESTS AND HOBBIES:
 * PHOTOGRAPHY
-* SPORTS: table-tennis, tennis, bowling. 
+* SPORTS: table-tennis, tennis, bowling
 * BOOKS/MOVIES: Ender’s Game, Hunger Games, Harry Potter, Ready Player One
 * VOLUNTEER/LEADERSHIP: Coordinate Logistics for Events across the Midwest
 * Productivity Geek: Bulletjournaling!
